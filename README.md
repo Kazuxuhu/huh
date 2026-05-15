@@ -5,4 +5,4 @@ ______________________
 I'm 18 and taken :^ So kindly prevent doing anything that can destroy my relationship with my partner !
 ______________________
 P.s I like cosplaying <3
-![test]()
+![test](https://github.com/Kazuxuhu/huh/blob/main/fluxi.png?raw=true)
